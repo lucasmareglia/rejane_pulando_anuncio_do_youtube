@@ -1,1 +1,0 @@
-# rejane_pulando_anuncio_do_youtube
